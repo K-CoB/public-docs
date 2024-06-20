@@ -1,0 +1,8 @@
+![1](https://github.com/K-CoB/readme/assets/75469131/0b5260a7-6b31-467c-a97a-1d95cbafb257)
+![2](https://github.com/K-CoB/readme/assets/75469131/a44b2633-c07c-45b1-bfce-9e6faa2f9e26)
+![3](https://github.com/K-CoB/readme/assets/75469131/bc89592a-9ec6-4d78-a830-0bae7f821324)
+![4](https://github.com/K-CoB/readme/assets/75469131/7f32b3a1-3722-4694-b851-65d006e52736)
+![5](https://github.com/K-CoB/readme/assets/75469131/cedee37e-e92e-45a7-ab9e-3e9209d31516)
+![6](https://github.com/K-CoB/readme/assets/75469131/91070ac3-6c50-45aa-a3a0-6f6e2815dda4)
+![7](https://github.com/K-CoB/readme/assets/75469131/8e118deb-950b-4fd5-8c13-1de2ff1a1d68)
+![8](https://github.com/K-CoB/readme/assets/75469131/dc6902de-c149-4bef-9bdf-7a45208eecaa)
